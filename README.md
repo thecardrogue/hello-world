@@ -1,2 +1,3 @@
 # hello-world
-my ideas and shtuff
+
+im lukas i like cheese wheels and platapuses
